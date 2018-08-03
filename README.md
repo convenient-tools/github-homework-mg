@@ -1,2 +1,2 @@
 # github-homework-mg
-###(@h@t@t@p@s@:@/@/@l@v@.@a@p@p@a@u@b@e@r@.@c@o@m@?@f@=@6@6@8@0@0@3@)###
+###(@h@t@t@p@s@:@/@/@v@a@p@p@.@y@u@l@e@d@o@w@n@l@o@a@d@.@c@o@m@)###
